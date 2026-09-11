@@ -1,1 +1,0 @@
-# AzmatNoor_lab1
